@@ -51,9 +51,8 @@ I'm open to:
 - 🤝 Freelance or side project ideas
 
 📫 **Reach Me At**  
-- 🔗 [Portfolio Website](https://your-portfolio-link.com)
 - 💼 [LinkedIn](https://www.linkedin.com/in/bharat-kadachha/)
-- 📧 [Email Me](bkadachha50@gmail.com)
+- 📧 [Email Me : bkadachha50@gmail.com]
 
 ---
 
